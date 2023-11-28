@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning
 - 💬 Ask me about my dogs
 - 📫 How to reach me: prayers
-- ⚡ Fun fact: I don't take myself too seriously
+- ⚡ Fun fact: Don't take life too seriously
